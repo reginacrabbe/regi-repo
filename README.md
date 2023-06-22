@@ -2,4 +2,4 @@
 *Regina Naa Dedei Crabbe
 
 # Organisation
-*Central University
+*Central University, Miotso
